@@ -1,6 +1,6 @@
 I was just in space, man. :man_astronaut: :rocket:
 
-Automation Expert | System Engineer | Cloud Evangelist | Technical Lead
+Automation & Innovation Lead | Senior Product Owner | AI/ML Enthusiast. Leveraging technology and building teams for seamless transformations and business success.
 
 
 <!---
